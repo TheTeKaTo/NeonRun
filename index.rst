@@ -1,1 +1,0 @@
-netusim co o delaaaa
